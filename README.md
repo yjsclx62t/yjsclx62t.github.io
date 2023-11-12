@@ -42,10 +42,14 @@
 10号游戏:农民的追求最新3.01全汉化版本
 
 <a href="https://postimg.cc/2V8TTHN4" target="_blank"><img src="https://i.postimg.cc/2V8TTHN4/10.png" alt="10"/></a>
+
 11号游戏:真实人生最新版官方作弊版  下架
+
 12号游戏:真实游戏 (real play) 2019最新完美中文版 特典+美容院+制作室 下架
+
 13号游戏:游戏俱乐部(PLAY CLUB) 豪华整合汉化版 I社神作之一(50G)
 下架
+
 14号游戏:美德-v17「PC+安卓」  下架
 
 
