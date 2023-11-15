@@ -119,7 +119,7 @@
         <p>17号游戏:「拳皇15：KOF15 官方中文绿色版+全女18社保MOD整合」「2月新作/30G」</p>
         <a href="https://postimg.cc/XBNKHvmV" target="_blank"><img src="https://i.postimg.cc/XBNKHvmV/17.png" alt="17"/></a>
         <p>18号游戏:[年度大作] 《欲望工坊 EmotionCreators R6》最新整合汉化MOD版 26GB</p>
-        <a href="https://postimg.cc/fkMvTHL6" target="_blank"><img src="https://i.postimg.cc/fkMvTHL6/18.png"alt="18"/></a>
+        <a href="https://postimg.cc/fkMvTHL6" target="_blank"><img src="https://i.postimg.cc/fkMvTHL6/18.png" alt="18"/></a>
         <p>19号游戏:剑灵3系国服韩服网单绅士版整合中文单机版</p>
         <a href="https://postimg.cc/xqg3kKNq" target="_blank"><img src="https://i.postimg.cc/xqg3kKNq/19.png"  alt="19"/></a>
         <p>20号游戏:【3A大作/中文/巫师3次世代V4.04整合80G绅士整合包含本体邪恶魔MOD改版★【新魔改】＋同人视频14G</p>
