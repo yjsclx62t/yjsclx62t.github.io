@@ -164,7 +164,7 @@
         <a href="https://postimg.cc/zbzR5cj7" target="_blank"><img src="https://i.postimg.cc/zbzR5cj7/34.png" alt="34"/></a>
         <p>35号游戏:恶之营 Ver1.11 STEAM官方中文作弊版 PC+安卓 SLG新作 1.8G</p>
         <a href="https://postimg.cc/Kk03YDp2" target="_blank"><img src="https://i.postimg.cc/Kk03YDp2/35.png" alt="35"/></a>
-        <p>36号游戏:「模拟人生4：1.99豪华版 全DLC绅士版」超多mod整合484G女主H事件</p>
+        <p>36号游戏:模拟人生4|官方中文|V1.102.190.1030+全DLC资料片+商业人物捏脸+整合绅士MOD-300G包含本体+超多女主H事件</p>
         <a href="https://postimg.cc/G9ps569h" target="_blank"><img src="https://i.postimg.cc/G9ps569h/36.png" alt="36"/></a>
         <a href="https://postimg.cc/HjTRZwN3" target="_blank"><img src="https://i.postimg.cc/HjTRZwN3/39号游戏_(1).jpg" alt="39号游戏_(1)"/></a>
         <a href="https://postimg.cc/tnRcsb68" target="_blank"><img src="https://i.postimg.cc/tnRcsb68/39号游戏_(2).jpg" alt="39号游戏_(2)"/></a>
