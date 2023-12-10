@@ -172,7 +172,9 @@
         <a href="https://postimg.cc/N592gT13" target="_blank"><img src="https://i.postimg.cc/N592gT13/37.png" alt="37"/></a>
         <p>38号游戏:Virt A Mate官方V1.20中文版（vam女友模拟V1.20.77.9）300G国漫整合包！</p>
         <a href="https://postimg.cc/CZNzv4gq" target="_blank"><img src="https://i.postimg.cc/CZNzv4gq/38.png" alt="38"/></a>
-        <p>39号游戏:《上古卷轴5:天际》自由天际V5实验室绅士整合包豪华顶配版310G，简介：
+        <p>39号游戏:《上古卷轴5:天际》自由天际V5实验室绅士整合包豪华顶配版310G，
+        MOD列表 https://pixeldrain.com/u/FLYrKhTb
+        简介：
 超稳定精心制作，全网最全稳定完善真实系老滚整合，超百个剧情场景地域百个颜值与智能随从，含极多原创汉化及mod， 1165个mod，兼容性极高在配置达标情况下不闪退，让您远离闪退烦恼,超高清画质，现代战斗系统，以MCO为框架，构建整个战斗系统，搭配
 N网大佬SMOOTH的动作作品，超爽打击体验,
 
