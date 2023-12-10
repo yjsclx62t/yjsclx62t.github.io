@@ -344,7 +344,7 @@ N网大佬SMOOTH的动作作品，超爽打击体验,
 <a href="https://postimg.cc/MvjSpSFn" target="_blank"><img src="https://i.postimg.cc/MvjSpSFn/QQ截图20231028090419.png" alt="QQ截图20231028090419"/></a>
 <a href="https://postimg.cc/t7y4pLWy" target="_blank"><img src="https://i.postimg.cc/t7y4pLWy/86号游戏.png" alt="86号游戏"/></a>
 <a href="https://postimg.cc/q6kJw34g" target="_blank"><img src="https://i.postimg.cc/q6kJw34g/86号游戏.png" alt="86号游戏"/></a>
-<p> 87号游戏 赛博朋克2077 2.01往日之影绅士mod整合包个人整理100多个77.7G，更新了最新的2.02不是懒人包需要自己安装MOD，个人还是推荐2.01</p>
+<p> 87号游戏 赛博朋克2077 2.02往日之影绅士mod整合包90G包含本体！内有详细安装教程，小白无忧！</p>
     <a href="https://postimg.cc/ZBJQwHDx" target="_blank"><img src="https://i.postimg.cc/ZBJQwHDx/87.jpg" alt="87"/></a>
     <a href="https://postimg.cc/7GXWdzF8" target="_blank"><img src="https://i.postimg.cc/7GXWdzF8/87_(2).jpg" alt="87_(2)"/></a>
 <p>88号游戏：MONSTER HUNTER: WORLD v15.11.01/怪物猎人：世界冰原+全DLC【官中】【98.5GB】+绅士MOD整合包2.68G DLC清单https://pixeldrain.com/u/1gb2WSb8</p>
