@@ -91,14 +91,14 @@
         <a href="https://postimg.cc/n9hLrK5G" target="_blank"><img src="https://i.postimg.cc/n9hLrK5G/10号游戏_(2).jpg" alt="10号游戏_(2)"/></a>
         <a href="https://postimg.cc/MX6H9xTf" target="_blank"><img src="https://i.postimg.cc/MX6H9xTf/10号游戏_(3).jpg" alt="10号游戏_(3)"/></a>
         <a href="https://postimg.cc/0rVQ33MW" target="_blank"><img src="https://i.postimg.cc/0rVQ33MW/10号游戏_(4).jpg" alt="10号游戏_(4)"/></a>
-        <p>11号游戏:真实人生最新版官方作弊版-下架中，如有需要可私信客服</p>
-    
-        <p>12号游戏:真实游戏 (real play) 2019最新完美中文版 特典+美容院+制作室-下架中，如有需要可私信客服</p>
- 
-        <p>13号游戏:游戏俱乐部(PLAY CLUB) 豪华整合汉化版 I社神作之一(50G)-下架中，如有需要可私信客服</p>
-
-        <p>14号游戏:美德-v17「PC+安卓」-下架中，如有需要可私信客服</p>
-
+         <p>11号游戏:真实人生最新版官方作弊版</p>
+        <a href="https://postimg.cc/4mLP0zXj" target="_blank"><img src="https://i.postimg.cc/4mLP0zXj/11.png" alt="11"/></a>
+        <p>12号游戏:真实游戏 (real play) 2019最新完美中文版 特典+美容院+制作室</p>
+        <a href="https://postimg.cc/JssxCGn0" target="_blank"><img src="https://i.postimg.cc/JssxCGn0/12.png" alt="12"/></a>
+        <p>13号游戏:游戏俱乐部(PLAY CLUB) 豪华整合汉化版 I社神作之一(50G)</p>
+        <a href="https://postimg.cc/K1CNGxkN" target="_blank"><img src="https://i.postimg.cc/K1CNGxkN/13.png" alt="13"/></a>
+        <p>14号游戏:美德-v17「PC+安卓」</p>
+        <a href="https://postimg.cc/LqfVhwjM" target="_blank"><img src="https://i.postimg.cc/LqfVhwjM/14.png" alt="14"/></a>
         <p>15号游戏:绯色修仙录魔改（主线更新）【官中】</p>
         <a href="https://postimg.cc/r0NCN4hn" target="_blank"><img src="https://i.postimg.cc/r0NCN4hn/15.png" 
         alt="15"/></a>
