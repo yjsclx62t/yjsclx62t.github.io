@@ -3,7 +3,7 @@
     <meta charset="UTF-8">
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
     <meta name="viewport" content="width=device-width, initial-scale=1.0,user-scalable=no">
-    <title>游戏精品菜单</title>
+    <title>嘻哈游戏精品菜单</title>
 </head>
 <body>
     <div style="margin:0 auto;width:device-width">
@@ -19,7 +19,7 @@
 </style>
 
 <div class="word">
-    <p>嘻哈游戏商城</p>
+    <p>游戏商城</p>
 </div>
         <p>
             本店所有游戏全部装机测试！完美运行不闪退。
