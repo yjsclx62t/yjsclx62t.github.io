@@ -267,7 +267,7 @@ N网大佬SMOOTH的动作作品，超爽打击体验,
         <a href="https://postimg.cc/3WpHYxkL" target="_blank"><img src="https://i.postimg.cc/3WpHYxkL/图片73.png" alt="图片73"/></a>
         <p>72号游戏价格15元【沙盒SLG汉化动态】一夜之间 老师过夜 Sensei Overnight v0.14.0</p>
         <a href="https://postimg.cc/30gMBtMM" target="_blank"><img src="https://i.postimg.cc/30gMBtMM/图片74.png" alt="图片74"/></a>
-        <p>73号游戏价格15 [欧美RPG/汉化] 动态 与妈妈一起隔离：Isolated with Mom V6 汉化版 [1.2G/转微云+度盘]</p>
+        <p>73号游戏价格15元 [欧美RPG/汉化] 动态 与妈妈一起隔离：Isolated with Mom V6 汉化版 [1.2G/转微云+度盘]</p>
         <a href="https://postimg.cc/zVrYBYWq" target="_blank"><img src="https://i.postimg.cc/zVrYBYWq/图片75.png" alt="图片75"/></a>
         <p>74号游戏价格25元【人妻SLG/官中】乡村狂想曲-被饥渴乡下少妇色强骑 v1.4.101 – Village【0.7G】</p>
         <a href="https://postimg.cc/yky43pXc" target="_blank"><img src="https://i.postimg.cc/yky43pXc/图片76.png" alt="图片76"/></a>
