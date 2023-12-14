@@ -28,7 +28,8 @@
         </p>
     
         
-        <p> 游戏购买链接  <a href="https://pt.928fk.com/links/10EE9EE5">https://pt.928fk.com/links/10EE9EE5</a></p>
+        <p> 游戏购买链接  <a href="
+            https://www.jilvfaka.com/links/4376A99E9B219A5B">https://www.jilvfaka.com/links/4376A99E9B219A5B</a></p>
             <p> 下拉找到您需要的对应的游戏编号下单获取！切勿拍错。
             看好游戏编号，看好游戏编号，看好游戏编号重要的事情说三遍。
             下单时填写好您的预留联系方式手机号或者您的QQ邮箱，平台会以短信模式发送到您的手机或QQ邮箱提取码和解压密码。支付成功后弹窗也会看到提取码和解压密码，请您复制粘贴保存好。
