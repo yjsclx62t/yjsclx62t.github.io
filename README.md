@@ -133,7 +133,7 @@
         <a href="https://postimg.cc/z3dTD84g" target="_blank"><img src="https://i.postimg.cc/z3dTD84g/28.png" alt="28"/></a>
         <p>29号游戏价格45元:JSK 工房游戏精品合集11部【4G】【安卓】</p>
         <a href="https://postimg.cc/ykkck2zr" target="_blank"><img src="https://i.postimg.cc/ykkck2zr/29.png" alt="29"/></a>
-        <p>30号游戏价格45:Wild Life-野性生活(26G) 官方中文版最新23年8月18日版 3D 大作/虚幻4</p>
+        <p>30号游戏价格45元:Wild Life-野性生活(26G) 官方中文版最新23年8月18日版 3D 大作/虚幻4</p>
         <a href="https://postimg.cc/SYj2YYHz" target="_blank"><img src="https://i.postimg.cc/SYj2YYHz/30.png" alt="30"/></a>
         <p>31号游戏价格25元:非一般旅馆 Ver1.0.1 官方中文版 PC+安卓 SLG新作 1.6G</p>
         <a href="https://postimg.cc/Sn99G8R6" target="_blank"><img src="https://i.postimg.cc/Sn99G8R6/31.png" alt="31"/></a>
