@@ -108,7 +108,7 @@
         <a href="https://postimg.cc/fkMvTHL6" target="_blank"><img src="https://i.postimg.cc/fkMvTHL6/18.png" alt="18"/></a>
         <p>19号游戏价格45元:剑灵3系国服韩服网单绅士版整合中文单机版</p>
         <a href="https://postimg.cc/xqg3kKNq" target="_blank"><img src="https://i.postimg.cc/xqg3kKNq/19.png"  alt="19"/></a>
-        <p>20号游戏价格50元:【3A大作/中文/巫师3次世代V4.04整合90G绅士整合包含本体邪恶魔MOD改版★【新魔改】＋同人视频14G</p>
+        <p>20号游戏价格50元:【3A大作/中文/巫师3次世代V4.04整合90G绅士整合包含本体邪恶魔改版300个mod ★【新魔改】＋同人视频14G</p>
       <a href="https://postimg.cc/gwT2BLBM" target="_blank"><img src="https://i.postimg.cc/gwT2BLBM/20号游戏.jpg" alt="20号游戏"/></a>
       <a href="https://postimg.cc/zbHGmDsq" target="_blank"><img src="https://i.postimg.cc/zbHGmDsq/20号游戏_(2).jpg" alt="20号游戏_(2)"/></a>
       <a href="https://postimg.cc/8fhk5Kk3" target="_blank"><img src="https://i.postimg.cc/8fhk5Kk3/20号游戏_(3).jpg" alt="20号游戏_(3)"/></a>
