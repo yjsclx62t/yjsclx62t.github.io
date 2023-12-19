@@ -317,7 +317,7 @@ N网大佬SMOOTH的动作作品，超爽打击体验,
             
             V0.15的容量比V0.14足足增加了一倍，达到3G！</p>
             <a href="https://postimg.cc/phTy386H" target="_blank"><img src="https://i.postimg.cc/phTy386H/Untitled.png" alt="Untitled"/></a>
-            <p>86号游戏价格50元 i社新作Honeycome V1.07全汉化最新去码补丁+第一人称插件+防联网失败补丁+精美捏人6000+卡片整合16G！持续更新最新DLC，提供人物卡网站。
+            <p>86号游戏价格50元 i社新作Honeycome V1.07全汉化最新去码补丁+第一人称插件+防联网失败补丁+精美捏人6000+卡片整合20G！持续更新最新DLC，提供人物卡网站。
                 游戏更新日志
                 新增人物卡上传功能：
 　饰品和角色等图形画面、
