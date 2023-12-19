@@ -327,6 +327,7 @@ N网大佬SMOOTH的动作作品，超爽打击体验,
 超越恋活2！已经上传完毕。
 目前有原神甘雨+真理之律者+乐马林+娜维娅 后期还有更多MOD
 </p>
+<a href="https://postimg.cc/D4PVNqfg" target="_blank"><img src="https://i.postimg.cc/D4PVNqfg/QQ截图20231219090246.png" alt="QQ截图20231219090246"/></a>
 <a href="https://postimg.cc/MvjSpSFn" target="_blank"><img src="https://i.postimg.cc/MvjSpSFn/QQ截图20231028090419.png" alt="QQ截图20231028090419"/></a>
 <a href="https://postimg.cc/t7y4pLWy" target="_blank"><img src="https://i.postimg.cc/t7y4pLWy/86号游戏.png" alt="86号游戏"/></a>
 <a href="https://postimg.cc/q6kJw34g" target="_blank"><img src="https://i.postimg.cc/q6kJw34g/86号游戏.png" alt="86号游戏"/></a>
