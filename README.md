@@ -242,7 +242,7 @@
         
                 https://www.jilvfaka.com/details/36DC2F9BC561B001                                                                               ">
           
-                https://www.jilvfaka.com/details/36DC2F9BC561B001        </p>                                
+                https://www.jilvfaka.com/details/36DC2F9BC561B001         </a></p>                                
       <a href="https://postimg.cc/gwT2BLBM" target="_blank"><img src="https://i.postimg.cc/gwT2BLBM/20号游戏.jpg" alt="20号游戏"/></a>
       <a href="https://postimg.cc/zbHGmDsq" target="_blank"><img src="https://i.postimg.cc/zbHGmDsq/20号游戏_(2).jpg" alt="20号游戏_(2)"/></a>
       <a href="https://postimg.cc/8fhk5Kk3" target="_blank"><img src="https://i.postimg.cc/8fhk5Kk3/20号游戏_(3).jpg" alt="20号游戏_(3)"/></a>
