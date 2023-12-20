@@ -347,7 +347,7 @@
            
                 https://www.jilvfaka.com/details/AD3A36E87441F863                                                                              ">
          
-                https://www.jilvfaka.com/details/AD3A36E87441F863                       </p>                 
+                https://www.jilvfaka.com/details/AD3A36E87441F863                        </a></p>                 
         <a href="https://postimg.cc/Sn99G8R6" target="_blank"><img src="https://i.postimg.cc/Sn99G8R6/31.png" alt="31"/></a>
         <p>32号游戏: 火影：不解之缘 Vr0.43 精翻汉化版 PC+安卓 SLG游戏 1.6G</p>
             <p> 购买地址  <a href="
