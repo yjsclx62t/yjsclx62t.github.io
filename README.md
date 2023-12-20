@@ -272,7 +272,7 @@
     
                 https://www.jilvfaka.com/details/54631ACA7483381E                                                                              ">
        
-                https://www.jilvfaka.com/details/54631ACA7483381E      </p>                                  
+                https://www.jilvfaka.com/details/54631ACA7483381E       </a></p>                                  
         <a href="https://postimg.cc/yJqmqjtp" target="_blank"><img src="https://i.postimg.cc/yJqmqjtp/23.png" alt="23"/></a>
         <p>24号游戏:影子武士3_v1.02 免安装中文版</p>
              <p> 购买地址  <a href="
@@ -280,7 +280,7 @@
         
                 https://www.jilvfaka.com/details/798C9EBF9D875A36                                                                              ">
          
-                https://www.jilvfaka.com/details/798C9EBF9D875A36           </p>                             
+                https://www.jilvfaka.com/details/798C9EBF9D875A36            </a></p>                             
         <a href="https://postimg.cc/KKnnmLyG" target="_blank"><img src="https://i.postimg.cc/KKnnmLyG/24.png" alt="24"/></a>
         <p>25号游戏:   惩戒魅魔：She Will Punish Them v0.81 官方中文版 [11G/更新]</p>
             <p> 购买地址  <a href="
@@ -354,7 +354,7 @@
         
                 https://www.jilvfaka.com/details/C4310EA7E9BB730B                                                                              ">
           
-                https://www.jilvfaka.com/details/C4310EA7E9BB730B                                 </p>       
+                https://www.jilvfaka.com/details/C4310EA7E9BB730B                                  </a></p>       
         <a href="https://postimg.cc/KKyMpz3d" target="_blank"><img src="https://i.postimg.cc/KKyMpz3d/32.png" alt="32"/></a>
         <p>33号游戏:夏日狂想曲+ ver2.13 官方中文版 SLG神作+存档 2.1G</p>
              <p> 购买地址  <a href="
