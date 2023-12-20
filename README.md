@@ -226,7 +226,7 @@
          
                 https://www.jilvfaka.com/details/431384FC12BA9AA0                                                                             </a></p>
             
-        <a href="https://postimg.cc/fkMvTHL6" target="_blank"><img src="https://i.postimg.cc/fkMvTHL6/18.png"alt="18"/></a>
+        <a href="https://postimg.cc/fkMvTHL6" target="_blank"><img src="https://i.postimg.cc/fkMvTHL6/18.png" alt="18"/></a>
         <p>19号游戏:  剑灵3系国服韩服网单绅士版整合中文单机版</p>
             <p> 购买地址  <a href="
                 
