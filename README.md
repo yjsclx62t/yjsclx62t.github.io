@@ -29,7 +29,7 @@
             <p> 下拉找到您需要的对应的游戏编号下单获取！切勿拍错。
             看好游戏编号，看好游戏编号，看好游戏编号重要的事情说三遍。
             下单时填写好您的预留联系方式手机号或者您的QQ邮箱，平台会以短信模式发送到您的手机或QQ邮箱提取码和解压密码。支付成功后弹窗也会看到提取码和解压密码，请您复制粘贴保存好。</p>
-            <p>  游戏安装运行问题咨询 客服主QQ：1025118278   备用QQ：3186862737客服微信yxdq8080</p>
+            <p>  游戏安装运行问题咨询 客服主QQ：1025118278   备用QQ：3186862737客服微信yxdq8080
          </p>      
         <p><font color="red">点击游戏号码下方图片可放大预览</font>
         </p>
@@ -40,7 +40,7 @@
              <p> 购买地址  <a href="
                 
                 https://www.jilvfaka.com/details/619A226E43B809E0                                        ">
-                https://www.jilvfaka.com/details/619A226E43B809E0                                        </a></p>                                                                      </a></p>
+                https://www.jilvfaka.com/details/619A226E43B809E0                                        </a></p>                                                                      
            
         <a href="https://postimg.cc/CzmrV3sP" target="_blank"><img src="https://i.postimg.cc/CzmrV3sP/1.jpg" alt="1"/></a>
         <a href="https://postimg.cc/vgM2ctBP" target="_blank"><img src="https://i.postimg.cc/vgM2ctBP/HS2_2023-06-06-13-10-45-604.png" alt="HS2_2023-06-06-13-10-45-604"/></a>
