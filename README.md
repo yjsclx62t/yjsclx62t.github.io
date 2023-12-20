@@ -740,7 +740,7 @@
          
             https://www.jilvfaka.com/details/68341882ECCB516B                                                                               ">
         
-            https://www.jilvfaka.com/details/68341882ECCB516B                    </p>                    
+            https://www.jilvfaka.com/details/68341882ECCB516B                     </a></p>                    
         <a href="https://postimg.cc/3WpHYxkL" target="_blank"><img src="https://i.postimg.cc/3WpHYxkL/图片73.png" alt="图片73"/></a>
         <p>72号游戏  【沙盒SLG汉化动态】一夜之间 老师过夜 Sensei Overnight v0.14.0</p>
         <p> 购买地址  <a href="
@@ -884,7 +884,7 @@
           
                 https://www.jilvfaka.com/details/4FC397F9A1A11CA2                                                                              ">
            
-                https://www.jilvfaka.com/details/4FC397F9A1A11CA2         </p>                               
+                https://www.jilvfaka.com/details/4FC397F9A1A11CA2          </a></p>                               
             <a href="https://postimg.cc/phTy386H" target="_blank"><img src="https://i.postimg.cc/phTy386H/Untitled.png" alt="Untitled"/></a>
             <p>86号游戏i社新作Honeycome V1.07全汉化最新去码补丁+第一人称插件+防联网失败补丁+精美捏人6000+卡片整合20G！持续更新最新DLC，提供人物卡网站。
                 游戏更新日志
