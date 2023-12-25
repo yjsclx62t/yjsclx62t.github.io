@@ -693,7 +693,7 @@
            
         <a href="https://postimg.cc/TpMfDD8M" target="_blank"><img src="https://i.postimg.cc/TpMfDD8M/图片66.png" alt="图片66"/></a>
         <p>67号游戏roomgirl 御宅少女全汉化V8.0整合55G包更新赠送精品人物卡1万+张！最新冰剑士特典+温泉+饭店+最新姿势等，更新
-
+最新高跟鞋插件
             修复套装显示问题
             
             新增材质编辑器+送精品贴图</p>
@@ -886,7 +886,7 @@
            
                 https://www.jilvfaka.com/details/4FC397F9A1A11CA2          </a></p>                               
             <a href="https://postimg.cc/phTy386H" target="_blank"><img src="https://i.postimg.cc/phTy386H/Untitled.png" alt="Untitled"/></a>
-            <p>86号游戏i社新作Honeycome V2.0.0全汉化最新去码补丁+12月22日全新工作室新玩法+第一人称插件+防联网失败补丁+精美捏人6000+卡片整合20G！持续更新最新DLC，提供人物卡网站。
+            <p>86号游戏i社新作Honeycome V2.0.1全汉化最新去码补丁+12月25日全汉化工作室新玩法+第一人称插件+防联网失败补丁+精美捏人卡片一万多整合26G！持续更新最新DLC，提供人物卡网站。
                 游戏更新日志
                 新增人物卡上传功能：最新VR补丁。
                 工作室新玩法！
