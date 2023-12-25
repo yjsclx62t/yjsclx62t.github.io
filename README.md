@@ -692,9 +692,8 @@
             https://www.jilvfaka.com/details/BF3C9EB7261AA7A0                                                                              </a></p>
            
         <a href="https://postimg.cc/TpMfDD8M" target="_blank"><img src="https://i.postimg.cc/TpMfDD8M/图片66.png" alt="图片66"/></a>
-        <p>67号游戏roomgirl 御宅少女全汉化V8.0整合55G包更新赠送精品人物卡1万+张！最新冰剑士特典+温泉+饭店+最新姿势等，更新
-最新高跟鞋插件
-            修复套装显示问题
+        <p>67号游戏roomgirl 御宅少女全汉化V8.0整合55G包更新赠送精品人物卡1万+张！最新冰剑士特典+温泉+饭店+最新姿势等，更新最新高跟鞋插件
+            修复套装显示问题，最新DHH打光插件。
             
             新增材质编辑器+送精品贴图</p>
              <p> 购买地址  <a href="
