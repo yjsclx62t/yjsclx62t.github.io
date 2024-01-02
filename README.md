@@ -403,7 +403,7 @@
                 https://www.jilvfaka.com/details/C36150B21E4D28AF                                                                              </a></p>
            
         <a href="https://postimg.cc/N592gT13" target="_blank"><img src="https://i.postimg.cc/N592gT13/37.png" alt="37"/></a>
-        <p>38号游戏: Virt A Mate官方V1.20中文版（vam女友模拟V1.20.77.9）300G国漫整合包！</p>
+        <p>38号游戏: Virt A Mate官方V1.22中文版（vam女友模拟V1.22.1.0）1T整合包国漫整合包！【1T资源分440G豪华版+20G汉化纯净低配版+40G舞蹈数据包+衣服86G+精美人物400G mod】</p>
              <p> 购买地址  <a href="
                 
         
