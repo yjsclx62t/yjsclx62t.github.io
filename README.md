@@ -640,7 +640,7 @@
             https://www.jilvfaka.com/details/DE789A690A69675A                                                                             </a></p>
            
         <a href="https://postimg.cc/gxpzf64q" target="_blank"><img src="https://i.postimg.cc/gxpzf64q/图片60.png" alt="图片60"/></a>
-        <p>61号游戏   【PC】死宅、天使、之家 最新1.14D+F汉化版（全汉化）【8G】</p>
+        <p>61号游戏   【PC】死宅、天使、之家 最新1.15D+F汉化版（全汉化）【8G】</p>
          <p> 购买地址  <a href="
                 
           
