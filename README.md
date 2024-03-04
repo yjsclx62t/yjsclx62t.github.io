@@ -776,7 +776,7 @@
             https://www.jilvfaka.com/details/BF0A3E83DEFD7347                                                                              </a></p>
            
         <a href="https://postimg.cc/yD6qmhv5" target="_blank"><img src="https://i.postimg.cc/yD6qmhv5/图片77.png" alt="图片77"/></a>
-        <p>76游戏  [3DSRPG汉化动态][马头社]SUBVERSE-颠覆 V8.0 STEAM官版+汉化+修改器电脑41G</p>
+        <p>76游戏  [3DSRPG汉化动态][马头社]SUBVERSE-颠覆 V8.4 STEAM官版+汉化+修改器电脑41G</p>
         <p> 购买地址  <a href="
                 
            
