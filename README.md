@@ -786,7 +786,7 @@
            
         <a href="https://postimg.cc/qtY9HP4V" target="_blank"><img src="https://i.postimg.cc/qtY9HP4V/图片79.png" alt="图片79"/></a>
         <a href="https://postimg.cc/FdLwrTHf" target="_blank"><img src="https://i.postimg.cc/FdLwrTHf/图片81.png" alt="图片81"/></a>
-        <p>77号游戏  【3D大作SLG/中文/全动态】双人居所 Ver0.16.1官方中文步兵版【12月大更新/虚幻4/12G】</p>
+        <p>77号游戏  【3D大作SLG/中文/全动态】双人居所 Ver0.19.0官方中文步兵版【3月大更新/虚幻4/12G】</p>
         <p> 购买地址  <a href="
                 
           
