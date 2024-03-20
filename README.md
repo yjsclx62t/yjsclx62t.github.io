@@ -71,7 +71,7 @@
         <a href="https://postimg.cc/PpZ1gCk1" target="_blank"><img src="https://i.postimg.cc/PpZ1gCk1/hanguo.jpg" alt="hanguo"/></a>
         <a href="https://postimg.cc/D4T1n72H" target="_blank"><img src="https://i.postimg.cc/D4T1n72H/wanmeishijie.jpg" alt="wanmeishijie"/></a>
         <a href="https://postimg.cc/xkBKpKB0" target="_blank"><img src="https://i.postimg.cc/xkBKpKB0/jiazu.jpg" alt="jiazu"/></a>
-        <p>4号游戏:鬼谷八荒万古神话v1.1.101绅士整合90G正式版MOD整合包上千款动态立绘！ 1700款衣柜整合最新完美版 300+最新MOD ，基于Fatury框架，上百套绅士清凉动态立绘</p>
+        <p>4号游戏:鬼谷八荒万古神话v1.1.103绅士整合90G正式版MOD整合包上千款动态立绘！ 1700款衣柜整合最新完美版 300+最新MOD ，基于Fatury框架，上百套绅士清凉动态立绘</p>
             <p> 购买地址  <a href="
                 
                 
