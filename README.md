@@ -383,7 +383,7 @@
                 https://www.jilvfaka.com/details/90375E2600B8C996                                                                              </a></p>
             
         <a href="https://postimg.cc/Kk03YDp2" target="_blank"><img src="https://i.postimg.cc/Kk03YDp2/35.png" alt="35"/></a>
-        <p>36号游戏: 「模拟人生4：1.103乐租生活全DLC豪华版 全DLC绅士版」超多mod整合300G女主H事件，最新WW邪恶模组</p>
+        <p>36号游戏: 「模拟人生4：1.105全DLC豪华版 +WW绅士mod包」超多衣服+捏人+房屋mod整合300G女主H事件，最新WW邪恶模组</p>
             <p> 购买地址  <a href="
                 
            
