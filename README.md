@@ -885,7 +885,7 @@
            
                 https://www.jilvfaka.com/details/4FC397F9A1A11CA2          </a></p>                               
             <a href="https://postimg.cc/phTy386H" target="_blank"><img src="https://i.postimg.cc/phTy386H/Untitled.png" alt="Untitled"/></a>
-            <p>86号游戏i社新作Honeycome V2.0.2全汉化最新去码补丁+12月25日全汉化工作室新玩法+第一人称插件+防联网失败补丁+精美捏人卡片一万多整合26G！持续更新最新DLC，提供人物卡网站。
+            <p>86号游戏i社新作Honeycome V2.0.3全汉化最新去码补丁+12月25日全汉化工作室新玩法+第一人称插件+防联网失败补丁+精美捏人卡片一万多整合26G！持续更新最新DLC，提供人物卡网站。
                 游戏更新日志
                 新增人物卡上传功能：最新VR补丁。
                 工作室新玩法！
