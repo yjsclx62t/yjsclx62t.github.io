@@ -333,15 +333,16 @@
                 https://www.jilvfaka.com/details/0F52FC31A033CCF2                                                                             </a></p>
            
         <a href="https://postimg.cc/ykkck2zr" target="_blank"><img src="https://i.postimg.cc/ykkck2zr/29.png" alt="29"/></a>
-        <p>30号游戏:   Wild Life-野性生活(26G) 官方中文版最新23年12月14日版 3D 大作/虚幻4</p>
+        <p>30号游戏:   Wild Life(狂野人生/野性生活)24.2.23版【PC26.2G】 3D 大作/虚幻4</p>
              <p> 购买地址  <a href="
                 
          
                 https://www.jilvfaka.com/details/4CD3E09AA9F50F9F                                                                               ">
         
                 https://www.jilvfaka.com/details/4CD3E09AA9F50F9F                                                                              </a></p>
+         目前为止认为工作室最强的3D游戏，工作室自由度很高，制作出的场景可以在里游玩类似AI少女，但功能比AI少女更为丰富。尤其是动画姿势比HS2质量高出很多。
          
-        <a href="https://postimg.cc/SYj2YYHz" target="_blank"><img src="https://i.postimg.cc/SYj2YYHz/30.png" alt="30"/></a>
+        <a href="https://postimg.cc/06tDgtyf" target="_blank"><img src="https://i.postimg.cc/06tDgtyf/30号.jpg" alt="30号"/></a>
         <p>31号游戏: 非一般旅馆 Ver1.0.1 官方中文版 PC+安卓 SLG新作 1.6G</p>
             <p> 购买地址  <a href="
            
