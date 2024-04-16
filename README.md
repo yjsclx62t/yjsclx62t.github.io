@@ -59,7 +59,7 @@
         <a href="https://postimg.cc/hzMFgtn3" target="_blank"><img src="https://i.postimg.cc/hzMFgtn3/KoikatsuSunshine-2023-06-06-13-20-54-UI.png" alt="KoikatsuSunshine-2023-06-06-13-20-54-UI"/></a>
         <a href="https://postimg.cc/8JT8qr26" target="_blank"><img src="https://i.postimg.cc/8JT8qr26/KoikatsuSunshine-2023-06-06-13-20-40-UI.png" alt="KoikatsuSunshine-2023-06-06-13-20-40-UI"/></a>
         <a href="https://postimg.cc/2qQRcxKY" target="_blank"><img src="https://i.postimg.cc/2qQRcxKY/KoikatsuSunshine-2023-06-06-13-20-18-UI.png" alt="KoikatsuSunshine-2023-06-06-13-20-18-UI"/></a>
-        <p>3号游戏:playhome家族崩坏V33魔改24年最新豪华版， 稀有整合包166G 4K画质</p>
+        <p>3号游戏:playhome家族崩坏V33魔改24年最新豪华版， 稀有整合包182G 4K画质 最新高跟鞋 胸托插件DHH等。</p>
              <p> 购买地址  <a href="
                 
             
