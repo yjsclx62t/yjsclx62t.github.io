@@ -33,7 +33,7 @@
          </p>      
         <p><font color="red">点击游戏号码下方图片可放大预览</font>
         </p>
-        <p> 1号游戏: HoneySelect甜心挑选2 V1.2.3最新226G高配版+74G精简版整合目前最新全部国漫和网络游戏人物卡MOD商业MOD人物卡包括！
+        <p> 1号游戏: HoneySelect甜心挑选2 最新600G高配版,包含最新R15本体68G，精品商业人物卡300G，顶配整合包226G整合目前最新全部国漫和网络游戏人物卡MOD商业MOD人物卡包括！
             超级商业级人物MOD！ 泡沫茶系列， 至尊商业mod ，pmc泡茶系列， 夕颜系列， 墨流系列， 匿名宇宙系列， tomato系列， alice系列， 
             S系列，（贞）子系列， 雨雪系列， 小公儿系列， 渭渭合集， 南海雾水系列，， AKI幸子系列， 熊二系列， AST系列， 国漫， 大圣制作，
              永劫无间系列， 女星系列， 崩坏三， 热枕系列，闪耀暖暖系列 等几十个系列！</p>
@@ -46,7 +46,7 @@
         <a href="https://postimg.cc/vgM2ctBP" target="_blank"><img src="https://i.postimg.cc/vgM2ctBP/HS2_2023-06-06-13-10-45-604.png" alt="HS2_2023-06-06-13-10-45-604"/></a>
         <a href="https://postimg.cc/NyxS8zWh" target="_blank"><img src="https://i.postimg.cc/NyxS8zWh/HS2_2023-06-06-13-12-20-597.png" alt="HS2_2023-06-06-13-12-20-597"/></a>
         <a href="https://postimg.cc/qhMY1GTN" target="_blank"><img src="https://i.postimg.cc/qhMY1GTN/HS2_2023-06-06-13-12-41-509.png" alt="HS2_2023-06-06-13-12-41-509"/></a>
-        <p>2号游戏: 恋爱活动2最新V1.1.4 280G热门人物整合+MOD包含本体-23年插件和商业MOD整合</p>
+        <p>2号游戏: 恋爱活动2最新V8.0 整合280G热门人物整合+MOD包含本体，工作室场景，24年插件全部汉化</p>
             
             <p> 购买地址  <a href="
                 
@@ -100,7 +100,7 @@
         <a href="https://postimg.cc/XZysdpSm" target="_blank"><img src="https://i.postimg.cc/XZysdpSm/5.png" alt="5"/></a>
         <a href="https://postimg.cc/JsykSpJ9" target="_blank"><img src="https://i.postimg.cc/JsykSpJ9/88a6b04e91cd0ed213fd3366b4143e91c334fdf4.png_942w_489h_progressive.jpg" alt="88a6b04e91cd0ed213fd3366b4143e91c334fdf4.png_942w_489h_progressive"/></a>
         <a href="https://postimg.cc/Yj3YFGMy" target="_blank"><img src="https://i.postimg.cc/Yj3YFGMy/e63cc79bb70591f85032ded17132684a7e064fd4.png_942w_489h_progressive.jpg" alt="e63cc79bb70591f85032ded17132684a7e064fd4.png_942w_489h_progressive"/></a>
-        <p>6号游戏:定制女仆2 cm3d2+com3d2Ver2.29+3.29全汉化最新DLC添加,800G整合版。超多MOD上万人物p档</p>
+        <p>6号游戏:定制女仆2 cm3d2+com3d2Ver2.29+3.36加强版全汉化最新DLC添加,800G整合版。超多MOD上万人物p档</p>
             <p> 购买地址  <a href="
                 
                 
@@ -413,7 +413,7 @@
                 https://www.jilvfaka.com/details/EFC8901F76FBB36D                                                                            </a></p>
            
         <a href="https://postimg.cc/CZNzv4gq" target="_blank"><img src="https://i.postimg.cc/CZNzv4gq/38.png" alt="38"/></a>
-        <p>39号游戏:《上古卷轴5:天际》自由天际V5实验室MOD绅士整合包豪华顶配版310G+365G新版24年，简介：
+        <p>39号游戏:《上古卷轴5:天际》自由天际V5实验室MOD绅士整合包豪华顶配版420G新版24年，简介：
             超稳定精心制作，全网最全稳定完善真实系老滚整合，超百个剧情场景地域百个颜值与智能随从，含极多原创汉化及mod， 1165个mod，兼容性极高在配置达标情况下不闪退，让您远离闪退烦恼,超高清画质，现代战斗系统，以MCO为框架，构建整个战斗系统，搭配
             N网大佬SMOOTH的动作作品，超爽打击体验,
             
@@ -787,7 +787,7 @@
            
         <a href="https://postimg.cc/qtY9HP4V" target="_blank"><img src="https://i.postimg.cc/qtY9HP4V/图片79.png" alt="图片79"/></a>
         <a href="https://postimg.cc/FdLwrTHf" target="_blank"><img src="https://i.postimg.cc/FdLwrTHf/图片81.png" alt="图片81"/></a>
-        <p>77号游戏  【3D大作SLG/中文/全动态】双人居所 Ver0.19.0官方中文步兵版【3月大更新/虚幻4/12G】</p>
+        <p>77号游戏  【3D大作SLG/中文/全动态】双人居所 Ver0.22官方中文步兵版+包含解锁码【24年大更新/虚幻4/12G】</p>
         <p> 购买地址  <a href="
                 
           
