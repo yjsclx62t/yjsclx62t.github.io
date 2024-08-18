@@ -274,7 +274,7 @@
        
                 https://www.jilvfaka.com/details/54631ACA7483381E       </a></p>                                  
         <a href="https://postimg.cc/yJqmqjtp" target="_blank"><img src="https://i.postimg.cc/yJqmqjtp/23.png" alt="23"/></a>
-        <p>24号游戏:极品采花郎：古风版AI少男 中文配音</p>
+        <p>24号游戏:极品采花郎：古风版AI少男 中文配音.</p>
              <p> 购买地址  <a href="
                 
         
