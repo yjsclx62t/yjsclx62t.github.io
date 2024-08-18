@@ -274,15 +274,15 @@
        
                 https://www.jilvfaka.com/details/54631ACA7483381E       </a></p>                                  
         <a href="https://postimg.cc/yJqmqjtp" target="_blank"><img src="https://i.postimg.cc/yJqmqjtp/23.png" alt="23"/></a>
-        <p>24号游戏:影子武士3_v1.02 免安装中文版</p>
+        <p>24号游戏:极品采花郎：古风版AI少男 中文配音+修改器</p>
              <p> 购买地址  <a href="
                 
         
                 https://www.jilvfaka.com/details/798C9EBF9D875A36                                                                              ">
          
                 https://www.jilvfaka.com/details/798C9EBF9D875A36            </a></p>                             
-        <a href="https://postimg.cc/KKnnmLyG" target="_blank"><img src="https://i.postimg.cc/KKnnmLyG/24.png" alt="24"/></a>
-        <p>25号游戏:   惩戒魅魔：She Will Punish Them v0.81 官方中文版 [11G/更新]</p>
+        <a href="https://postimg.cc/VS3wJy3W" target="_blank"><img src="https://i.postimg.cc/VS3wJy3W/24号.jpg" alt="24号"/></a>
+        <p>25号游戏:   惩戒魅魔：She Will Punish Them v0.81 官方中文版 [11G/更新]</p><a href="https://postimg.cc/VS3wJy3W" target="_blank"><img src="https://i.postimg.cc/VS3wJy3W/24号.jpg" alt="24号"/></a>
             <p> 购买地址  <a href="
                 
        
@@ -375,15 +375,15 @@
                 https://www.jilvfaka.com/details/4E247430276FABDA                                                                            </a></p>
             
         <a href="https://postimg.cc/zbzR5cj7" target="_blank"><img src="https://i.postimg.cc/zbzR5cj7/34.png" alt="34"/></a>
-        <p>35号游戏:恶之营 Ver1.11 STEAM官方中文作弊版 PC+安卓 SLG新作 1.8G</p>
+        <p>35号游戏:抖M向游戏：魔女的侵袭女巫之下 中文版 8月最新合集+通关存档</p>
              <p> 购买地址  <a href="
                 
          
                 https://www.jilvfaka.com/details/90375E2600B8C996                                                                               ">
            
                 https://www.jilvfaka.com/details/90375E2600B8C996                                                                              </a></p>
-            
-        <a href="https://postimg.cc/Kk03YDp2" target="_blank"><img src="https://i.postimg.cc/Kk03YDp2/35.png" alt="35"/></a>
+            <a href="https://postimg.cc/Vrn8MGwQ" target="_blank"><img src="https://i.postimg.cc/Vrn8MGwQ/35号.jpg" alt="35号"/></a>
+        
         <p>36号游戏: 「模拟人生4：1.105全DLC豪华版 +WW绅士mod包」超多衣服+捏人+房屋mod整合300G女主H事件，最新WW邪恶模组</p>
             <p> 购买地址  <a href="
                 
@@ -742,15 +742,16 @@
         
             https://www.jilvfaka.com/details/68341882ECCB516B                     </a></p>                    
         <a href="https://postimg.cc/3WpHYxkL" target="_blank"><img src="https://i.postimg.cc/3WpHYxkL/图片73.png" alt="图片73"/></a>
-        <p>72号游戏  【沙盒SLG汉化动态】一夜之间 老师过夜 Sensei Overnight v0.14.0</p>
+        <p>72号游戏
+致命解药V0.48魔改H版：国产生化危机 绅士MOD+新增大量服装 </p>
         <p> 购买地址  <a href="
                 
           
             https://www.jilvfaka.com/details/16B6792E342E9000                                                                              ">
          
             https://www.jilvfaka.com/details/16B6792E342E9000                                                                              </a></p>
-          
-        <a href="https://postimg.cc/30gMBtMM" target="_blank"><img src="https://i.postimg.cc/30gMBtMM/图片74.png" alt="图片74"/></a>
+          <a href="https://postimg.cc/BXQv93sj" target="_blank"><img src="https://i.postimg.cc/BXQv93sj/72号.jpg" alt="72号"/></a>
+        
         <p>73号游戏    [欧美RPG/汉化] 动态 与妈妈一起隔离：Isolated with Mom V6 汉化版 [1.2G/转微云+度盘]</p>
         <p> 购买地址  <a href="
            
