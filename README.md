@@ -46,7 +46,7 @@
         <a href="https://postimg.cc/vgM2ctBP" target="_blank"><img src="https://i.postimg.cc/vgM2ctBP/HS2_2023-06-06-13-10-45-604.png" alt="HS2_2023-06-06-13-10-45-604"/></a>
         <a href="https://postimg.cc/NyxS8zWh" target="_blank"><img src="https://i.postimg.cc/NyxS8zWh/HS2_2023-06-06-13-12-20-597.png" alt="HS2_2023-06-06-13-12-20-597"/></a>
         <a href="https://postimg.cc/qhMY1GTN" target="_blank"><img src="https://i.postimg.cc/qhMY1GTN/HS2_2023-06-06-13-12-41-509.png" alt="HS2_2023-06-06-13-12-41-509"/></a>
-        <p>2号游戏: 恋爱活动2最新V8.0 整合280G热门人物整合+MOD包含本体，工作室场景，24年插件全部汉化</p>
+        <p>2号游戏: 恋爱活动2最新V8.0 整合280G热门人物整合+MOD包含本体，工作室场景，24年插件全部汉化.</p>
             
             <p> 购买地址  <a href="
                 
