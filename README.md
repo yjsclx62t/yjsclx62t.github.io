@@ -930,3 +930,16 @@
 <a href="https://postimg.cc/SXLwZkMh" target="_blank"><img src="https://i.postimg.cc/SXLwZkMh/88号.jpg" alt="88号"/></a>
 <a href="https://postimg.cc/8Fg2Bjs4" target="_blank"><img src="https://i.postimg.cc/8Fg2Bjs4/88号游戏.jpg" alt="88号游戏"/></a>
        
+89号游戏夏日狂欢 日文免安装版1.0.1【带 注册表补丁】【带特典】【 21G 】
+购买地址
+https://www.jilvfaka.com/details/70BCE3FA9D3025D1
+<a href="https://postimg.cc/VdnG1zQC" target="_blank"><img src="https://i.postimg.cc/VdnG1zQC/89.png" alt="89"/></a>
+8月30日【下午更新了特典和1.01补丁】速度很快。
+夏日狂欢v1.0.1章鱼娘追加&雷神预购特典 0830补丁&雷神特典
+ILLGAMES最新作「サマバケ！すくらんぶる」
+（音译就是 Summer vacation Scramble，夏日争夺战、暑假大混战，夏日狂欢节，啥的翻译都行）今夏8月30日发售，好家伙暑假就剩一天了，你搁着开启狂欢是吧 （那时候估计都在忙着补暑假作业了）
+系统跟之前预告片中的一样，看上去很像人工学园的系统……不，几乎就可以说是一模一样的照搬，我愿称之为AA3
+捏人系统有一些改进，但不大，还是Honey Come的那套换汤不换药，还得看以后的mod和插件了
+本作对比Honey Come最大的改进，还是性格增加了吧，首发就有十种性格（女）。
+CV也终于不再是那些看惯了的老面孔了，不过不得不提一嘴，本作CV里居然有白月（性格是母性），在AA2里是经典性格“楚”的声音，那个声线至今我都记得。
+白月时隔这么多年，终于又再一次出现在I社（新I社）的作品中了！不得不感慨一下（你还敢说这不是AA3？
